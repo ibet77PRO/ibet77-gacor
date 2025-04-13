@@ -1,1 +1,1 @@
-https://ibet77gacor.pro/
+https://ibet77gacor.pro/desktop/home
